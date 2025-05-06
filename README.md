@@ -1,4 +1,4 @@
-# lirik lagu sempurna #
+# lirik lagu sempurna # ainunnnnnnn
 kau begitu sempurna
 Di mataku, kau begitu indah
 Kau membuat diriku akan s'lalu memujamu
